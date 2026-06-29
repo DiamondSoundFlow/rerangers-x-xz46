@@ -1,4 +1,4 @@
-
+re:rangers x Script stealth is the best re:rangers x Script, featuring auto-farm and unlimited stamina. Safe and powerful for all your needs.
 
 
 
